@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shuchimehta870@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1bJg0LklrzefMXYt1lPfhwl3qHVAduSbL/edit?usp=sharing&ouid=116802718802131822860&rtpof=true&sd=true]([https://docs.google.com/document/d/1bJg0LklrzefMXYt1lPfhwl3qHVAduSbL/edit?usp=sharing&ouid=116802718802131822860&rtpof=true&sd=true](https://drive.google.com/file/d/1weVQjkbS94rtGyD53n3IsP5X_TAnwBvJ/view?usp=sharing))
+- 📄 Know about my experiences [https://docs.google.com/document/d/1bJg0LklrzefMXYt1lPfhwl3qHVAduSbL/edit?usp=sharing&ouid=116802718802131822860&rtpof=true&sd=true](https://docs.google.com/document/d/1bJg0LklrzefMXYt1lPfhwl3qHVAduSbL/edit?usp=sharing&ouid=116802718802131822860&rtpof=true&sd=true](https://drive.google.com/file/d/1weVQjkbS94rtGyD53n3IsP5X_TAnwBvJ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
